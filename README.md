@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me:
 - 1.mail - mr.vanya882@gmail.com
-- 2.instagram - @vanyachekrizov
+- 2.WhatsApp - +4915150124815
 - 3.telegram - @Vvane4ek
 <!---
 Vanya-Ch/Vanya-Ch is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
